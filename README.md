@@ -1,19 +1,21 @@
 # My Favorite Series
 
-## Harry Potter
+## Classroom of the elite
 
-**Harry Potter** is a science fiction series.
+**Classroom of the elite** a psychological thriller anime and light novel series 
 
 ### Why I like it:
 - Interesting storyline
 - Great characters
-- 80s theme
+- Highschool student vibes
+- Fantastic strategies
 
 ### Main Characters:
-1. Harry
-2. Ron
-3. Hermione
+1. Ayanokouji Kiyotaka
+2. Horikita Suzune
+3. Honami Ichose
+4. Yosuke Hirata
 
-> "Expecto Patronum!." - Harry Potter
+> "Winning is everthing!." - Classroom of the elites
 
-![Harry Potter](https://contentful.harrypotter.com/usf1vwtuqyxm/18QRhwlpgMjPQ5HBea7JJl/ebcfa569029e4e398408767ce2085a5c/HP-F3-prisoner-of-azkaban-harry-smiling-hogwarts-express-web-landscape?q=75&fm=jpg&w=2560)
+![Classroom of the elite](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRn4lKAKKtQzB4UhINQtF92afoGiJWdIVjabA&s)
