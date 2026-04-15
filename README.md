@@ -16,6 +16,9 @@
 3. Honami Ichose
 4. Yosuke Hirata
 
+
+:joy:
+:joy:
 > "Winning is everthing!." - Classroom of the elites
 
 ![Classroom of the elite](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQfjS_7UnutbHPw4Gore1sYM96Qx_1uEYWWBQ&s)
