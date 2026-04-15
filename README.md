@@ -18,4 +18,4 @@
 
 > "Winning is everthing!." - Classroom of the elites
 
-![Classroom of the elite](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRn4lKAKKtQzB4UhINQtF92afoGiJWdIVjabA&s)
+![Classroom of the elite](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQfjS_7UnutbHPw4Gore1sYM96Qx_1uEYWWBQ&s)
