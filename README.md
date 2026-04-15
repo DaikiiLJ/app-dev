@@ -11,7 +11,7 @@
 - Fantastic strategies
 
 ### Main Characters:
-1. Ayanokouji Kiyotaka
+1. Ayanokouji Kiyotaka :joy:
 2. Horikita Suzune
 3. Honami Ichose
 4. Yosuke Hirata
@@ -22,3 +22,6 @@
 > "Winning is everthing!." - Classroom of the elites
 
 ![Classroom of the elite](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQfjS_7UnutbHPw4Gore1sYM96Qx_1uEYWWBQ&s)
+
+:joy:
+:joy:
